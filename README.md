@@ -1,0 +1,7 @@
+![WhatsApp Image 2023-01-21 at 10 37 45 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/3b1f46a5-802b-4682-bfbd-e7c15b0e2029)
+![WhatsApp Image 2023-01-21 at 10 37 26 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/a4dde3e3-a18c-4e41-aecf-3675427f7e2e)
+![WhatsApp Image 2023-01-19 at 10 23 25 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/4faeae34-5809-4f0c-ac9d-806cb3561df6)
+![WhatsApp Image 2023-01-19 at 10 23 06 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/2558ad6e-2bdb-4abe-87ee-45778a901ade)
+![WhatsApp Image 2023-01-19 at 10 22 42 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/172e7b30-ec4a-4968-a217-caaf98029422)
+![WhatsApp Image 2023-01-05 at 2 18 58 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/bc5aa85d-f080-45e9-8822-bfc76dd17573)
+![WhatsApp Image 2023-01-21 at 10 38 26 AM](https://github.com/maehnoor16/Netflix_Clone/assets/96993976/61f8174f-615c-4f99-8842-8ec613fb8ebe)
